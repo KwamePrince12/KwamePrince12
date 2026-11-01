@@ -1,4 +1,4 @@
-My name is Inkoom Prince, and I come from Somanya in the Eastern Region of Ghana. I am a member of the Ghana Air Force, stationed at Air Force Base Takoradi.
+My name is Inkoom Prince, and I come from Somanya in the Eastern Region of Ghana. I am a personnel of the Ghana Air Force, stationed at Air Force Base Takoradi.
 
 I would describe myself as friendly, respectful, and hardworking. I enjoy running in my leisure time and spending time with my family and friends. I am always willing to learn new things and improve myself.
 
